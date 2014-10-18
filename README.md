@@ -1,4 +1,4 @@
-ApathyOverkillOfficial
+apathyOverkillOfficial
 ======================
 
-officialbandpage
+Officialbandpage
